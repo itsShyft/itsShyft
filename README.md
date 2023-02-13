@@ -1,2 +1,1 @@
-# me
-dumb bitch
+# professional dumbass
